@@ -18,4 +18,4 @@
 
 O que estou achando do curso ?
 
-CURSO INCRÍVEL <3
+Muito interessante!
